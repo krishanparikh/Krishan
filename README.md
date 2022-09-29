@@ -30,6 +30,9 @@ Tennis at school:
 Where I **purchase** tennis equipment:
 [https://www.tennis-warehouse.com/](https://www.tennis-warehouse.com/)
 
+Basic tennis court outline:
 ![Image](https://freesvg.org/img/tennis-court.png)
 
+
+How a professional tennis match looks like:
 ![Image](https://c.pxhere.com/photos/b1/44/athletes_audience_competition_court_crowd_fans_game_group-984268.jpg!d)
