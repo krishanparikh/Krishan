@@ -15,4 +15,4 @@ Tennis at school:
 
 **Bold** and _Italic_ and `Code` text
 
-[https://www.tennis-warehouse.com/](https://www.tennis-warehouse.com/) and ![Image](https://www.sportsfeelgoodstories.com/wp-content/uploads/2019/01/tennis-court-dimenstions.jpg) and ![Image](https://tenniscompanion.org/wp-content/uploads/2020/02/tennis-etiquette-for-players-spectators-and-parents.png)
+[https://www.tennis-warehouse.com/](https://www.tennis-warehouse.com/) and ![Image](https://freesvg.org/img/tennis-court.png) and ![Image](https://c.pxhere.com/photos/b1/44/athletes_audience_competition_court_crowd_fans_game_group-984268.jpg!d)
