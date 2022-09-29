@@ -1,17 +1,19 @@
 
 ## _What is tennis?_
 This is a page about my favorite sport: tennis
-I am a competitive tennis player and have not really played any other sports.
+Note: I am a competitive tennis player and have not really played any other sports.
 ### _My history with the sport_
 I also enjoy watching tennis. I purchase my tennis equipment from the site below.
 
-- I have played tennis since I was young (4 years old)
-- I have been to numerous tennis tournaments and competed in many of them as well
+- I have played tennis since I was young (4 years old).
+- I have been to numerous tennis tournaments and competed in many of them as well. (Sidenote: I play against top 100 players in the USA for men's 18 and under)
 - If I were to play another sport, I would play American football as I enjoy the fast paced environment.
+- My current favorite tennis players are Gael Monfils, Frances Tiafoe, and Nick Kyrgios.
 
 Tennis at school:
 1. I am the Varsity Captain fo the WHS tennis team.
 2. I helped the team make it to the CIF finals last year.
+
 
 
 
