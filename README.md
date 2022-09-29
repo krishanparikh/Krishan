@@ -1,6 +1,6 @@
 
-## My Hobby
-[This is a page about my favorite sport: tennis]
+## What is Krishan's favorite sport?
+This is a page about my favorite sport: tennis
 [I am a competitive tennis player and have not really played any other sports.]
 ### MY history with the sport
 [I also enjoy watching tennis. I purchase my tennis equiptment from the site below.
