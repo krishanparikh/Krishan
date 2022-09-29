@@ -13,7 +13,8 @@ I also enjoy watching tennis. I purchase my tennis equipment from the site below
 
 Tennis at school:
 1. I have been the Varsity Captain for the Whitney High School tennis team for the past three years.
-2. I helped the team make it to the CIF finals last year.
+2. I helped the team make it to the CIF finals last year (CIF Finalist Division 3)
+3. Team MVP award for 2021-2022
 
 
 
