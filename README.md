@@ -1,4 +1,4 @@
-body {background: pink}
+
 ## _What is tennis?_
 This is a page about my favorite sport: tennis
 Note: I am a competitive tennis player and have not really played any other sports.
