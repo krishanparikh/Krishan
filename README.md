@@ -12,7 +12,7 @@ I also enjoy watching tennis. I purchase my tennis equipment from the site below
 - My current favorite tennis players are Gael Monfils, Frances Tiafoe, and Nick Kyrgios.
 
 Tennis at school:
-1. I am the Varsity Captain fo the WHS tennis team.
+1. I have been the Varsity Captain for the Whitney High School tennis team for the past three years.
 2. I helped the team make it to the CIF finals last year.
 
 
